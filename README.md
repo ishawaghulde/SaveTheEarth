@@ -1,5 +1,5 @@
 # SaveTheEarth
-Genius. Inventor. Billionaire. Plsyboy. Philanthropist.
+Genius. Billionaire. Plsyboy. Philanthropist.
 Tony Stark.
 His abilities?
 saving New York
